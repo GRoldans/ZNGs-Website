@@ -1,0 +1,7 @@
+![room2](https://github.com/user-attachments/assets/2082a5e8-315b-4ce9-a8db-5fc5a1ee16de)
+![room](https://github.com/user-attachments/assets/d3aa3efc-dfb7-4294-a553-426b9226cac8)
+![Masters](https://github.com/user-attachments/assets/352d3485-ce7e-4685-982e-a4f20d8b5e55)
+![MasterHome](https://github.com/user-attachments/assets/c72b476e-6f93-4b61-b993-6706d31677c4)
+![BeachView3](https://github.com/user-attachments/assets/3a1dd756-57e8-4276-b8e3-3965c2b072cc)
+![BeachView2](https://github.com/user-attachments/assets/d1806efa-ceb7-4a54-9d8b-c5a7920ceeb7)
+![BeachView1](https://github.com/user-attachments/assets/bea5ad29-3a19-44c4-931d-12f50dcaa2d1)
